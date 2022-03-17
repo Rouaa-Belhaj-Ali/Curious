@@ -1,2 +1,2 @@
 # Curious
-iam a very hard worker developper , i just get lazy pushing my projects
+iam a very hard worker developer , i just get lazy pushing my projects
